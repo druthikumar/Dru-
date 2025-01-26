@@ -6,3 +6,4 @@ experience
 1 IDEOTHON compitition won
 interested for internship 
 shridevi institution of engineering and technology 
+near sira gate Tumkur 
