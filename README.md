@@ -7,3 +7,4 @@ experience
 interested for internship 
 shridevi institution of engineering and technology 
 near sira gate Tumkur 
+my ambition is to achieve a scesssive person in my life 
