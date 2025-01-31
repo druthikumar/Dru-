@@ -1,5 +1,5 @@
 # Dru druthi 
-<br>Druthi<br>
+<br>Druthi Kumar<br>
 Currently 3year pursuing Engineering ISE Department 🏬 
 experience 
 1 Hackathon compitition won 
